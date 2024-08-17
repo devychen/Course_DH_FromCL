@@ -1,1 +1,1 @@
-# Course_DH_FromCL
+# Course Digital Humanities From CL Perspective
